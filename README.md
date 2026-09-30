@@ -4,8 +4,8 @@
 
 ## 📞 MY CONTACTS
 
-- **For any questions write here: [https://t.me/srmkf](https://t.me/srmkf)**
-- **News group: [https://t.me/coconutsrmkf](https://t.me/coconutsrmkf)**
+- **For any questions write here: [https://t.me/soltokensup](https://t.me/soltokensup)**
+- **News group: [https://t.me/coconutosup](https://t.me/coconutosup)**
 
 ### ⚠️ LEGAL INFORMATION
 
